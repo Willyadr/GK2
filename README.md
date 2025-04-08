@@ -1,0 +1,2 @@
+# GK2
+TUGAS GK 2 
